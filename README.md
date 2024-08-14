@@ -8,3 +8,4 @@ Ainda não trabalho, porém se eu gostar desta área quero me aprofundar mais e 
 
 Meu email: 00001130707428sp@al.educacao.sp.gov.br (para caso de querer entrar em contato comigo​🤗​)
 
+![https://images.app.goo.gl/rvuiwkAUSycvGJVG8](link)
